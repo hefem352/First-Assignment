@@ -21,6 +21,8 @@ These are all new skills. Try and Google around if you get stuck, or e-mail me!
 # Names
 Taylor Mussenden - musst248@newschool.edu
 
+Mikey Hefez - hefem352@newschool.edu
+
 Becca Zhou - zhouj422@newschool.edu
 
 Vicky Boyd - boydv991@newschool.edu
